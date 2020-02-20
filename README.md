@@ -23,5 +23,5 @@ png picture of a Snowflake ()
 
 ## Secondary Ideas
 
-Instagram Filter with Snowflakes in the background that fall down at the beginning of activating it. They fall down as long as the Face-Filter is activated. While the filter is activated, if you open your mouth it will look like the glass of the screen steams up (maybe something will be written into the steamed up screen), steam goes away after a few seconds (5sec). . When the Snowflakes start dropping a sleigh bell sound is audible for three seconds.
+Instagram Filter with Snowflakes in the background that fall down at the beginning of activating it. They fall down as long as the Face-Filter is activated. While the filter is activated, if you open your mouth it will look like the glass of the screen steams up (maybe something will be written into the steamed up screen), steam goes away after a few seconds (5sec).  When the Snowflakes start dropping a sleigh bell sound is audible for three seconds.
  
