@@ -11,7 +11,7 @@ Red Nose and icicles, (Snowflakes, Steam)
 
 ## Concept
 
-(Snowflakes falling down, Screen steams up after opening your mouth wide enough), red nose and icicles for a freezing Winter feeling
+(Snowflakes falling down, Screen steams up after opening your mouth wide enough), red nose and icicles for a freezing Winter feeling, maybe put a soft blue colorfilter over it so it looks even more cold
 
 ## Idea
 
